@@ -1,4 +1,4 @@
-<h1>!☆✅【公式LIVE放送!】全日本競歩能美放送・テレビ放送・ライブ放送・伊藤美誠vs王曼昱ライブ配信・生中継・生放送 2024年03月17日</h1>
+全日本競歩能美放送・テレビ放送・ライブ放送・伊藤美誠vs王曼昱ライブ配信・生中継・生放送 2024年03月17日
 
 <strong>🔴生中継▶ [https://sports2tv.live/jp-marathon/](https://sports2tv.live/jp-marathon3/)</strong>
 

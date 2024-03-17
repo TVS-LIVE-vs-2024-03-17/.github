@@ -1,8 +1,8 @@
 全日本競歩能美放送・テレビ放送・ライブ放送・伊藤美誠vs王曼昱ライブ配信・生中継・生放送 2024年03月17日
 
-<strong>🔴生中継▶ [https://sports2tv.live/jp-marathon/](https://sports2tv.live/all-japan-race/)</strong>
+<strong>🔴生中継▶ [https://sports2tv.live/all-japan-race/](https://sports2tv.live/jp-marathon3/)</strong>
 
-<strong>🔴生中継▶ [https://sports2tv.live/jp-marathon/](https://sports2tv.live/all-japan-race/)</strong>
+<strong>🔴生中継▶ [https://sports2tv.live/all-japan-race/](https://sports2tv.live/jp-marathon3/)</strong>
 
 【陸上】パリ五輪見据えたレース！全日本競歩能美大会に川野将虎、園田世玲奈ら出場
 パリ五輪代表選考会となる第48回全日本競歩能美大会が3月17日に行われる。
